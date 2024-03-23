@@ -1,1 +1,1 @@
-https://mega.nz/file/o7Rl2YQD#ayqHH6arUC-1Gbq6FpSucp4WuEJ9g5GNUeKGMLC7-io
+https://www.mediafire.com/file/vkpcw60el2no7y6/SBL.V00Z.Patch.rar/file
