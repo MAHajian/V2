@@ -1,2 +1,1 @@
-
-https://mega.nz/file/h2RiXAxT#xBsO14Xr4YmzscRe6xVfTMFlgBq0f6NK_HpvzR4SZHc
+https://www.mediafire.com/file/qg7dwgdr0xfmm6n/SBL+Patcher.rar/file
